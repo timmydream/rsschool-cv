@@ -1,1 +1,0 @@
-https://timmydream.github.io/rsschool-cv/cv
